@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mithunprakash83
 - 👀 I’m interested in gaming, football, swimming and working out
-- 🌱 I’m currently learning life lessons at 37 and getting back to coding after 12 years.
+- 🌱 I’m currently learning life lessons at 37 and one of them is to learn how to code
 - 💞️ I’m looking to collaborate on anything that piques my interest
 - 📫 How to reach me ...
 
